@@ -1,1 +1,1 @@
-#my name is Islam
+#my name is Islam and i am from Uralsk. I like coding <3
